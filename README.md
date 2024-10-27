@@ -1,2 +1,2 @@
 # google-form-scam-obfuscator
-Fuck em.
+Big anger.
